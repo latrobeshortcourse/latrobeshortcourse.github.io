@@ -1,0 +1,1 @@
+# latrobeshortcourse.github.io
